@@ -1,4 +1,4 @@
-> **DEMO LINK:** https://drive.google.com/file/d/1AWVJDHfhdjWDVMRgjqu0AWPTepig7mXq/view?usp=drive_link
+> **DEMO LINK:** https://drive.google.com/file/d/1AWVJDHfhdjWDVMRgjqu0AWPTepig7mXq/view?usp=sharing
 
 >>>> _**HouseHunt: Finding Your Perfect Rental Home**_
 
